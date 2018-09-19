@@ -1,1 +1,1 @@
-# myreponerd
+# myreponerdmi compu no sirve
